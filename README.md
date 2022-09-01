@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @HongAnhBinh
+- 👋 Hi, I’m @TrongBinh
 - 👀 I’m interested in Crypto
 - 🌱 I’m currently learning Investment
 - 💞️ I’m looking to collaborate on Knowledge
